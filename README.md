@@ -10,7 +10,7 @@
 
 <div id="header" align="center">
 
-too lazy to make it rlly aesthetic rn,, 
+too lazy to make it rlly aesthetic rn,, + no links currently
 </p>
 ji, soph or ciel 15 they them or all prns !! ill be ur chronically online friend
 </p>
