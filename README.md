@@ -12,7 +12,7 @@
 
 too lazy to make it rlly aesthetic rn,, 
 </p>
-ji, soph or ciel 15 they them or all prns
+ji, soph or ciel 15 they them or all prns !! ill be ur chronically online friend
 </p>
 i love qqgk, 19 days, lotm, orv, link click, ghg, aupov, no home, little mushroom, rgtnl, oroh, gmnd, mmas and more!
 </p>
