@@ -18,8 +18,6 @@ THE qqgk, link click and little mushroom lover, im THEIR no.1 fan (joke)
 </p>
 generally a webnovels, danmei, manhua/wha/ga enjoyer :-)
 </p>
-btw i used to be @sorbetswirl on github but im not usin dat account okk.
-</p>
 
 
 <p align="center"
