@@ -10,7 +10,7 @@
 
 <div id="header" align="center">
 
-too lazy to make it rlly aesthetic rn,, + no links currently
+not making this cutee kill urself [MY LINK! READ PLES!!!](https://rentry.co/nineteendays)
 </p>
 ji, soph or ciel 15 they them or all prns !! ill be ur chronically online friend
 </p>
