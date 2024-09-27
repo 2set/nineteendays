@@ -16,7 +16,7 @@ ji, soph or ciel 15 they them or all prns !! ill be ur chronically online friend
 </p>
 THE qqgk, link click and little mushroom lover, im THEIR no.1 fan (joke)
 </p>
-generally a webnovels, manhua/wha/ga enjoyer :-)
+generally a webnovels, danmei, manhua/wha/ga enjoyer :-)
 </p>
 btw i used to be @sorbetswirl on github but im not usin dat account okk.
 </p>
