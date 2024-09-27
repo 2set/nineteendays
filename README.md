@@ -23,3 +23,5 @@ btw i used to be @sorbetswirl on github but im not usin dat account okk.
 
 
 <p align="center"
+
+![](https://komarev.com/ghpvc/?username=nineteendays&color=BA9175&label=freak+count&abbreviated=true&base=20)
