@@ -6,15 +6,15 @@
 ![](https://komarev.com/ghpvc/?username=nineteendays&color=BA9175&label=freak+count&abbreviated=true&base=20)
 
 <p align="center">
-<img src="https://files.catbox.moe/00504l.png"> 
+<img src="https://files.catbox.moe/sk2jod.png"> 
 
 
 
 <div id="header" align="center">
 
-not making this cutee kill urself [MY LINK! READ PLES!!!](https://rentry.co/nineteendays)
+wip, call me soph(ia) or ji or ciel or hya idfk 15 they them all prns
 </p>
-ji, soph or ciel 15 they them or all prns !! ill be ur chronically online friend
+my mouse is broken finishing this is a pain in the ass
 </p>
 THE qqgk, link click and little mushroom lover, im THEIR no.1 fan (joke)
 </p>
