@@ -1,6 +1,6 @@
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=nineteendays&color=A59432&label=freak+count&abbreviated=true&base=20)
+![](https://komarev.com/ghpvc/?username=nineteendays&color=9BB1C6&label=freak+count&abbreviated=true&base=20)
 
 <p align="center">
 <img src="https://i.pinimg.com/736x/40/36/81/4036816d7f0e48dc6505978627554c08.jpg"> 
