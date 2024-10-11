@@ -3,16 +3,16 @@
 ![](https://komarev.com/ghpvc/?username=nineteendays&color=9BB1C6&label=freak+count&abbreviated=true&base=20)
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/40/36/81/4036816d7f0e48dc6505978627554c08.jpg"> 
-</p>
-hi this is literally me? lol? 
+<img src="https://files.catbox.moe/7qan4t.gif"> 
 </p>
 
 
 <div id="header" align="center">
 
+this shit is like a whole ass wip so pls dont bother ughh
+</p>
 
-ill retheme ts one day trust lawl [<img src="https://files.catbox.moe/1kq266.png">](https://rentry.co/nineteendays) [<img src="https://files.catbox.moe/c48p8v.png">](https://rentry.co/soph) [<img src="https://files.catbox.moe/cxzffp.png">](https://yoojoonghyuk.atabook.org/)
+[<img src="https://files.catbox.moe/1kq266.png">](https://rentry.co/nineteendays) [<img src="https://files.catbox.moe/c48p8v.png">](https://rentry.co/soph) [<img src="https://files.catbox.moe/cxzffp.png">](https://yoojoonghyuk.atabook.org/)
 </p>
 
 [<img src="https://files.catbox.moe/ky0v99.png">](https://rentry.co/naiad) [<img src="https://files.catbox.moe/98rntm.png">](https://rentry.co/aug3)
