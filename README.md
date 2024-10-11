@@ -1,5 +1,7 @@
 <div id="header" align="center">
 
+<img src="https://files.catbox.moe/zj0nmz.png">
+
 ![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=freak+count&abbreviated=true&base=20)
 
 <p align="center">
@@ -16,4 +18,5 @@
 [<img src="https://files.catbox.moe/9gkue1.png">](https://rentry.co/naiad) [<img src="https://files.catbox.moe/05ii1d.png">](https://rentry.co/tarotclub)
 </p>
 
+<img src="https://files.catbox.moe/fw8rmj.png">
 <p align="center"
