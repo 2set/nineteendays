@@ -2,7 +2,7 @@
 
 <img src="https://files.catbox.moe/zj0nmz.png">
 
-![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=🕰&abbreviated=true&base=17)
+![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=🕰&abbreviated=false&base=17)
 
 <p align="center">
 <img src="https://files.catbox.moe/7qan4t.gif"> 
@@ -20,5 +20,5 @@
 
 <img src="https://files.catbox.moe/fw8rmj.png">
 
-<img src="https://file.garden/ZgwdTG-uajjHAH58/yjhhh.png"> 999th turn yjh hi :3
+<img src="https://file.garden/ZgwdTG-uajjHAH58/yjhhh.png"> 999th round yjh hi :3
 <p align="center"
