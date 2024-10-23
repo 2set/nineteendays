@@ -2,7 +2,7 @@
 
 <img src="https://files.catbox.moe/zj0nmz.png">
 
-![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=🕰&abbreviated=false&base=17)
+![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=🕰&base=17)
 
 <p align="center">
 <img src="https://files.catbox.moe/7qan4t.gif"> 
