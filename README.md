@@ -1,7 +1,6 @@
 <div id="header" align="center">
 
-<img src="a">
-hi remaking to round 7 alnst.
+<img src="https://files.catbox.moe/gpjqy5.png">
 
 ![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=🕰&base=17)
 
@@ -13,12 +12,9 @@ hi remaking to round 7 alnst.
 <div id="header" align="center">
 
 
-[<img src="https://files.catbox.moe/c7nf0j.png">](https://rentry.co/nineteendays) [<img src="https://files.catbox.moe/15dhb5.png">](https://rentry.co/soph) [<img src="https://files.catbox.moe/acqez9.png">](https://yoojoonghyuk.atabook.org/)
+wip
 </p>
 
-[<img src="https://files.catbox.moe/9gkue1.png">](https://rentry.co/naiad) [<img src="https://files.catbox.moe/05ii1d.png">](https://rentry.co/tarotclub)
-</p>
-
-<img src="a">
+<img src="https://files.catbox.moe/gisbub.png">
 
 <p align="center"
