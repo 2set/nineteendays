@@ -1,11 +1,12 @@
 <div id="header" align="center">
 
-<img src="https://files.catbox.moe/zj0nmz.png">
+<img src="a">
+hi remaking.
 
 ![](https://komarev.com/ghpvc/?username=nineteendays&color=ad1bff&label=🕰&base=17)
 
 <p align="center">
-<img src="https://files.catbox.moe/7qan4t.gif"> 
+<img src="a"> 
 </p>
 
 
@@ -18,7 +19,6 @@
 [<img src="https://files.catbox.moe/9gkue1.png">](https://rentry.co/naiad) [<img src="https://files.catbox.moe/05ii1d.png">](https://rentry.co/tarotclub)
 </p>
 
-<img src="https://files.catbox.moe/fw8rmj.png">
+<img src="a">
 
-<img src="https://file.garden/ZgwdTG-uajjHAH58/yjhhh.png"> 999th round yjh hi :3
 <p align="center"
