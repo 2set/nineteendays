@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=nineteendays&style=plastic&color=ffbce2&label=_twinks_&base=17)
 
 <p align="center">
-<img src="https://files.catbox.moe/pxyqvt.png"> 
+<img src="https://files.catbox.moe/kjgx6c.png"> 
 </p>
 
 
