@@ -1,16 +1,16 @@
 <div id="header" align="center">
 
-![](https://komarev.com/ghpvc/?username=nineteendays&style=plastic&color=ad1bff&label=_twinks_&base=17)
+![](https://komarev.com/ghpvc/?username=nineteendays&style=plastic&color=ffbce2&label=_twinks_&base=17)
 
 <p align="center">
-<img src="bleh"> 
+<img src="https://files.catbox.moe/pxyqvt.png"> 
 </p>
 
 
 <div id="header" align="center">
 
 
-i want to rmk this again ughhaajasasasa.
+rremaking o_o
 </p>
 
 guys my pt info is on .co/nineteendays, IM NOT AN ENSTARRIE I JS LIKE TORI GET OUTTT.
