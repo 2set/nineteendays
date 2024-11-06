@@ -10,9 +10,8 @@
 <div id="header" align="center">
 
 
-rremaking o_o
+soph seth silas sylus silvan idk all s names
 </p>
-
 guys my pt info is on .co/nineteendays, IM NOT AN ENSTARRIE I JS LIKE TORI GET OUTTT.
 </p>
 
