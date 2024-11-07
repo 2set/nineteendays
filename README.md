@@ -10,9 +10,8 @@
 <div id="header" align="center">
 
 
-soph seth silas sylus silvan idk all s names
-</p>
-guys my pt info is on .co/nineteendays, IM NOT AN ENSTARRIE I JS LIKE TORI GET OUTTT.
-</p>
+　 ♡ 　they / he / all , sixteen
+
+[pony town rentry is here! ;3](https://rentry.co/nineteendays)
 
 <p align="center"
